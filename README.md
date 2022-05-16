@@ -9,3 +9,5 @@ ronb45g/ronb45g is a ✨ special ✨ repository because its `README.md` (this fi
 You can click the Preview link to take a look at your changes.
 --->
 I;m sure learn this coding I am new here.
+Today, what are thing. // < to better my self moreless care everyone? ("data, -> linkThis") it's is my name:ronb45g \\
+i nee improve my self this ( Memory,' dothings')
